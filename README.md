@@ -26,7 +26,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **darshanshah3010@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xT6c4XjCqQEHfqQa47-bv9EgpfT3q9qy/view](https://drive.google.com/file/d/1xT6c4XjCqQEHfqQa47-bv9EgpfT3q9qy/view)
+- 📄 Know about my experiences [shorturl.at/dHJ02](shorturl.at/dHJ02)
 
 - ⚡ Fun fact **I prefer programming over meditation.**
 
